@@ -5,3 +5,4 @@
 Empresarial](https://github.com/BrunaCanhonii/Informatica/assets/163791622/85b2b87c-29bf-4eac-ba4b-6d57c3294dd6)
 ![thumbnail_imagem 2](https://github.com/BrunaCanhonii/Informatica/assets/163791622/e23bead7-577d-4525-b435-ce09c59234b7)
 ![thumbnail_imagem 3](https://github.com/BrunaCanhonii/Informatica/assets/163791622/bdfae400-6d60-4c79-af1f-a51ea54bb5fc)
+![PROVA INFORMATICA](https://github.com/BrunaCanhonii/Informatica/assets/163791622/2d23d868-f090-4536-bfb4-fa31c5a3d581)
