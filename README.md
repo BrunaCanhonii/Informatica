@@ -8,3 +8,4 @@ Empresarial](https://github.com/BrunaCanhonii/Informatica/assets/163791622/85b2b
 ![PROVA INFORMATICA](https://github.com/BrunaCanhonii/Informatica/assets/163791622/2d23d868-f090-4536-bfb4-fa31c5a3d581)
 ![Excel - prova Bruna](https://github.com/BrunaCanhonii/Informatica/assets/163791622/df9425e6-d3a2-4415-ac03-5bf7da88bbbf)
 ![image](https://github.com/BrunaCanhonii/Informatica/assets/163791622/053ee623-8834-4074-987b-4cf937306cff)
+![image](https://github.com/BrunaCanhonii/Informatica/assets/163791622/0f08fb73-8892-42a9-9385-7f5cd3991e68)
