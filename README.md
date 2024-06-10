@@ -3,6 +3,7 @@
 ![HORARIO](https://github.com/BrunaCanhonii/Informatica/assets/163791622/fc5fb5b2-98b8-45c6-a0aa-c791b0e5bf0d)
 ![Planilha Setor ![thumbnail_imagem 1](https://github.com/BrunaCanhonii/Informatica/assets/163791622/b55e5f9a-940d-4bcf-84fc-1fd0408abac5)
 Empresarial](https://github.com/BrunaCanhonii/Informatica/assets/163791622/85b2b87c-29bf-4eac-ba4b-6d57c3294dd6)
+![image](https://github.com/BrunaCanhonii/Informatica/assets/163791622/14310077-c9f3-4a8c-9ab6-e1ff0b85e660)
 ![thumbnail_imagem 2](https://github.com/BrunaCanhonii/Informatica/assets/163791622/e23bead7-577d-4525-b435-ce09c59234b7)
 ![thumbnail_imagem 3](https://github.com/BrunaCanhonii/Informatica/assets/163791622/bdfae400-6d60-4c79-af1f-a51ea54bb5fc)
 ![PROVA INFORMATICA](https://github.com/BrunaCanhonii/Informatica/assets/163791622/2d23d868-f090-4536-bfb4-fa31c5a3d581)
